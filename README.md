@@ -1,2 +1,4 @@
 # MiiverseRewritten
-I just to revive miiverse
+I will need you for revive Miiverse
+# Progression
+0%
